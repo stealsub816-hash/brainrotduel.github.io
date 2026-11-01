@@ -1,0 +1,2 @@
+# brainrotduel.github.io
+gsg
